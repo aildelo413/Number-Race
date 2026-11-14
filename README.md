@@ -229,4 +229,4 @@ Number Race is offered as a complete free version with all features and updates 
 Download Number Race today and give your children the gift of fun learning!
 
 ---
-**Last updated:** 2026-11-13 18:56:46 UTC
+**Last updated:** 2026-11-14 00:06:27 UTC
